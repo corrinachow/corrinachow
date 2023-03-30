@@ -7,20 +7,9 @@
 •:•:•.•:•.•:•:•:•:•:•:•:•☾☼☽•:•.•:•.•:•:•:•:•:•:•:•:•
 
 
-┌───── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ──────┐
+   [corrinachow.com](http://corrinachow.com/)
 
-
-* corrinachow.com](http://corrinachow.com/)
-
-* LinkedIn](https://www.linkedin.com/in/corrina-chow/)
-
-* CodePen](https://codepen.io/corrinachow)
-
-* Twitter](https://twitter.com/corrinachow)
-
-* Dev.to](https://dev.to/corrinachow)
-
-└───── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ──────┘
+   [LinkedIn](https://www.linkedin.com/in/corrina-chow/)
 
 
 •:•:•.•:•.•:•:•:•:•:•:•:•☾☼☽•:•.•:•.•:•:•:•:•:•:•:•:•
